@@ -1,0 +1,1 @@
+# STRIGA_FINAL
